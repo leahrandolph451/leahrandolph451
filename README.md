@@ -2,7 +2,7 @@
 - 👀 I’m interested in research and/or digital marketing. 
 - 🌱 I’m currently learning digital marketing and E-Commerce.
 - 💞️ I’m looking to collaborate on any engaging and collaborative project!
-- 📫 How to reach me: leahraandolph451@gmail.com
+- 📫 How to reach me: leahraandolph451@gmail.com or 860-377-3905
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have been to 15 countires!
 
