@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Leah
-- 👀 I’m interested in research and/or digital marketing. 
+- 👀 I’m interested in entry level research, data analytics, marketing and/or digital marketing. 
 - 🌱 I’m currently learning digital marketing and E-Commerce.
 - 💞️ I’m looking to collaborate on any engaging and collaborative project!
 - 📫 How to reach me: leahraandolph451@gmail.com or 860-377-3905
